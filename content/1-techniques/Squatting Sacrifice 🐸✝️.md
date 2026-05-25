@@ -17,4 +17,4 @@
     - Land your [[Knee 🦵]] on their back
     - Grab their [[Left ⬅️]] [[Arm 💪]] and pull upwards
 7. - [[Right ➡️]] Stomp on their back
-8. - [[Right ➡️]] [[Foot 🦶]] sweep away their [[Left ⬅️]] [[Arm 💪]]
+8. - [[Right ➡️]] [[Foot 🦶]] sweep away their [[Left ⬅️]] [[Arm 💪]] and [[Cover Right before Left 🦶🔄]]
