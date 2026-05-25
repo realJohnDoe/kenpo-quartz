@@ -10,7 +10,7 @@
 1. - [[Left ⬅️]] [[Foot 🦶]] pulls toward [[Right ➡️]] [[Foot 🦶]] into [[Right ➡️]] [[Cat Stance🐈🧍‍♂️]] facing [[1030 ↖️]]
     - [[Left ⬅️]] [[Downward ⬇️]] [[Block 🛡️]]
     - [[Right ➡️]] vertical [[Punch 👊💥]] [[To 🎯]] their [[Face 😐]]
-2. [[Right ➡️]] [[Front Kick 🔼🦶💥]]
+2. - [[Right ➡️]] [[Front Kick 🔼🦶💥]]
 3. - Land in [[Right ➡️]] [[Forward Bow ⬆️🧍‍♂️]] facing [[1030 ↖️]]
     - [[Left ⬅️]] [[Straight Punch ↕️👊💥]]
 4. - Move [[Left ⬅️]] [[Foot 🦶]] a bit [[counter-clockwise 🔄]]
