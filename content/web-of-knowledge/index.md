@@ -135,6 +135,7 @@ title: Web of Knowledge
 		- [[Escape from Death 🏃💀]] ([[6]])
 	- [[7-weapons|Weapons 🗡️]]
 		- [[Brushing the Storm 🖌️⛈️]] ([[7]])
+		- [[Clipping the Storm ✂️⛈️]] ([[22]])
 	
 
 [[Inspired by this Table](https://de.scribd.com/doc/116565982/Ed-Parker-s-American-Kenpo-Master-Key)]
