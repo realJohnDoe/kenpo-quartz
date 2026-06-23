@@ -13,7 +13,7 @@ Overhead [[Club Attack 🪄💥]] from [[300 ➡️]] ([[7-weapons|Web of Knowle
 2. - Step [[clockwise 🔃]] with [[Left ⬅️]] [[Foot 🦶]] towards [[300 ➡️]] into a [[Left ⬅️]] [[Wide Kneel ↔️🧎]]
     - Collapsing [[Right ➡️]] [[Downward ⬇️]] [[Elbow 💪💥]] [[To 🎯]] their mid zone
 3. - [[Right ➡️]] [[Downward ⬇️]] [[Heel Palm ✋🌴💥]] [[To 🎯]] their [[Groin 🩲]]
-4. - [[Left ⬅️]] [[Foot 🦶]] continues [[clockwise 🔃]] towards [[1200 ⬆️]]
+4. - [[Right ➡️]] [[Foot 🦶]] continues [[clockwise 🔃]] towards [[1200 ⬆️]]
     - [[Right ➡️]] [[Hand ✋]] grabs their [[Right ➡️]] [[Foot 🦶]] to bring them down
     - [[Left ⬅️]] [[Hand ✋]] pushes their back to support this
 5. - [[Left ⬅️]] [[Scoop Kick 🥄🦶💥]] [[To 🎯]] their [[Groin 🩲]]

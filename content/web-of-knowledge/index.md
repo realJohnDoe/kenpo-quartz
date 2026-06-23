@@ -119,6 +119,7 @@ title: Web of Knowledge
         - [[Obscure Claws 🌑🐯]] ([[1]])
 		- [[Menacing Twirl 😈🌀]] ([[8]])
 		- [[Conquering Shield 🏆🛡️]] ([[15]])
+		- [[Intercepting the Ram ✋🐏]] ([[20]])
 	- [[2-pushes|Pushes ✋]]
 		- [[Encounter with Danger ⚠️🦵🦵🦵]] ([[2]])
     - [[3-punches|Punches 👊]]

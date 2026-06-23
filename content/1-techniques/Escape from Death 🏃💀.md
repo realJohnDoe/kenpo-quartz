@@ -18,4 +18,4 @@
 6. - Turn [[counter-clockwise 🔄]] into [[Left ⬅️]] [[Forward Bow ⬆️🧍‍♂️]] facing [[730 ↙️]]
     - [[Right ➡️]] [[Heel Palm ✋🌴💥]] [[To 🎯]] their chin
 7. - [[Right ➡️]] [[Knee 🦵💥]]
-8. - [[Cover Right before Left 🦶🔄]] towards [[1200 ⬆️]]
+8. - [[Cover Left before Right 🦶🔃]] towards [[1200 ⬆️]]

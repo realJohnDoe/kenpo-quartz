@@ -13,7 +13,7 @@
 2. - [[Left ⬅️]] [[Waiter Check 🧑‍🍳]]
 3. - [[Right ➡️]] [[Back Knuckle 🔙✊💥]] [[To 🎯]] their mid zone
 4. - [[Left ⬅️]] [[Foot 🦶]] crosses behind into [[Right ➡️]] [[Forward Bow ⬆️🧍‍♂️]] facing [[1030 ↖️]]
-    - [[Left ⬅️]] [[Handsword ✋⚔️💥]] [[To 🎯]] their neck
+    - [[Left ⬅️]] [[Inward 🔽]]  [[Handsword ✋⚔️💥]] [[To 🎯]] their neck
 5. - Unwind into [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]]
     - [[Right ➡️]] [[Handsword ✋⚔️💥]] [[To 🎯]] their neck
 6. - Grab their chin

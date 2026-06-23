@@ -16,5 +16,5 @@
 4. - [[Right ➡️]] [[Knee 🦵💥]] [[To 🎯]] their [[Elbow 💪]]s
 5. - [[Right ➡️]] [[Front Kick 🔼🦶💥]]
 6. - Land in [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]]
-7. - [[Right ➡️]] [[Elbow 💪💥]] [[To 🎯]] their [[Face 😐]]
+7. - [[Right ➡️]] [[Inward 🔽]] [[Elbow 💪💥]] [[To 🎯]] their [[Face 😐]]
 8. - [[Cover Right before Left 🦶🔄]] towards [[1200 ⬆️]]

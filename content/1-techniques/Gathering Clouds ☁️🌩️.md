@@ -12,7 +12,7 @@
     - [[Left ⬅️]] [[Parry 🤺]]
     - [[Right ➡️]] [[Inward 🔽]] [[Hammerfist 🔨✊💥]]
 2. - Turn into [[Left ⬅️]] [[Neutral Bow 0️⃣🧍‍♂️]]
-    - [[Right ➡️]] [[Outward 🔼]] [[Back Knuckle 🔙✊💥]]
+    - [[Right ➡️]] [[Outward 🔼]] [[Handsword ✋⚔️💥]] [[To 🎯]] their ribs
 3. - [[Right ➡️]] [[Foot 🦶]] forward into [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]] 
     - Collapse [[Right ➡️]] [[Inward 🔽]] [[Elbow 💪💥]]
 4. - [[Right ➡️]] [[Scoop Kick 🥄🦶💥]]

@@ -3,6 +3,10 @@ aliases:
   - Short Form 3
 title: Short Form 3
 ---
+## Video 🎥
+
+<iframe src="https://www.youtube.com/embed/XWAtsuDdgQE" width="100%" height="400"></iframe>
+
 ## Steps  👣
 
 1. [[4-salutation|Salutation]]
@@ -11,9 +15,12 @@ title: Short Form 3
 4. [[Twirling Wings 🌀🪽]]
 5. [[Circling Wing ⭕🪽]]
 6. [[Crossing Talon ❌🦅]]
-7. [[Scraping Hoof ⬇️🐎]]
+7. [[Scraping Hoof ⬇️🐎]], but only the right side
 8. Fatal Cross
-9. [[Grip of Death 🧤💀]]
+    - Twin Middle Knuckle
+    - Twin crossed [[Back Knuckle 🔙✊💥]] to their temples
+    - Twin crossed two-finger poke to their eyes
+9. [[Grip of Death 🧤💀]] (mirrored)
 10. [[Locked Wing 🔒🪽]]
 11. [[Crossed Twigs ❌🌿]]
 12. [[Wings of Silk 🪽🧵]]
