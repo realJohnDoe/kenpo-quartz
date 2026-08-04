@@ -9,7 +9,7 @@
 ## Steps 👣
 
 1. - Step [[counter-clockwise 🔄]] with the [[Left ⬅️]] [[Foot 🦶]] into a [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]] facing [[1030 ↖️]]
-    - [[Block 🛡️]] the opponent's [[Kick 🦶💥]] with a universal [[Block 🛡️]]
+    - [[Block 🛡️]] the opponent's [[Kick 🦶💥]] with a beuniversal [[Block 🛡️]]
 2. - Shuffle forward
     - [[Right ➡️]] [[Downward ⬇️]] [[Hammerfist 🔨✊💥]] [[To 🎯]] their [[Groin 🩲]]
 3. - Slide [[Left ⬅️]] [[Foot 🦶]] further [[counter-clockwise 🔄]] into a [[Left ⬅️]] [[Neutral Bow 0️⃣🧍‍♂️]] facing [[730 ↙️]]

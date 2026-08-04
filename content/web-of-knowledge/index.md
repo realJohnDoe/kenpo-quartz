@@ -125,16 +125,21 @@ title: Web of Knowledge
     - [[3-punches|Punches 👊]]
 	    - [[Circling Destruction ⭕💥]] ([[3]])
 		- [[Circles of Protection ⭕🛡️]] ([[10]])
+		- [[Kneel of Compulsion 🦵⬇️]] ([[21]])
         - [[Glancing Wing 👀🪽]] ([[23]])
+		- [[The Back Breaker 🪵💥]] ([[24]])
     - [[4-kicks|Kicks 🦶]]
         - [[Detour from Doom 🚧🌑]] ([[4]])
 		- [[Circle of Doom ⭕🌑]] ([[11]])
 	- [[5-holds-and-hugs|Holds and Hugs 🫂]]
 		- [[Squatting Sacrifice 🐸✝️]] ([[5]])
+		- [[Broken Gift 💔🎁]] ([[12]])
 	- [[6-locks-and-chokes|Locks & Chokes 🔒]]
 		- [[Escape from Death 🏃💀]] ([[6]])
+		- [[Heavenly Ascent 🪽⬆️]] ([[13]])
 	- [[7-weapons|Weapons 🗡️]]
 		- [[Brushing the Storm 🖌️⛈️]] ([[7]])
+		- [[Securing the Storm 🛡️⛈️]] ([[19]])
 		- [[Clipping the Storm ✂️⛈️]] ([[22]])
 	
 

@@ -10,19 +10,24 @@ title: Short Form 3
 ## Steps  👣
 
 1. [[4-salutation|Salutation]]
-2. [[Destructive Twins 💥👯‍♂️]]
-3. [[Crashing Wings 💥🪽]]
-4. [[Twirling Wings 🌀🪽]]
-5. [[Circling Wing ⭕🪽]]
-6. [[Crossing Talon ❌🦅]]
-7. [[Scraping Hoof ⬇️🐎]], but only the right side
-8. Fatal Cross
-    - Twin Middle Knuckle
-    - Twin crossed [[Back Knuckle 🔙✊💥]] to their temples
-    - Twin crossed two-finger poke to their eyes
-9. [[Grip of Death 🧤💀]] (mirrored)
-10. [[Locked Wing 🔒🪽]]
-11. [[Crossed Twigs ❌🌿]]
-12. [[Wings of Silk 🪽🧵]]
-13. [[Conquering Shield 🏆🛡️]]
-14. [[Striking Serpent's Head 🎳🐍]]
+2. Towards [[1200 ⬆️]]:
+	1. [[Destructive Twins 💥👯‍♂️]]
+	2. [[Crashing Wings 💥🪽]]
+	3. [[Twirling Wings 🌀🪽]]
+3. Towards [[730 ↙️]]
+	1. [[Circling Wing ⭕🪽]]
+	2. [[Crossing Talon ❌🦅]]
+	3. [[Scraping Hoof ⬇️🐎]], but only the right side
+4. Towards [[1030 ↖️]]:
+	1. Fatal Cross
+		- Twin [[Downward ⬇️]] hooks in [[Right ➡️]] [[Cat Stance🐈🧍‍♂️]]
+	    - Twin Middle Knuckle in [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]]
+	    - Twin crossed [[Back Knuckle 🔙✊💥]] to their temples
+	    - Twin crossed two-finger poke to their eyes
+	2. [[Grip of Death 🧤💀]] (mirrored)
+	3. [[Locked Wing 🔒🪽]]
+	4. [[Crossed Twigs ❌🌿]]
+	5. [[Wings of Silk 🪽🧵]]
+5. Towards [[130 ↗️]]:
+	1. [[Conquering Shield 🏆🛡️]]
+	2. [[Striking Serpent's Head 🎳🐍]]

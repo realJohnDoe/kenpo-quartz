@@ -5,7 +5,7 @@ cf. [Fresno Kenpo Karate](https://fresnokenpokarate.com/training-video/)
 
 1. g9: [[Attacking Mace 💥✊]]
 2. g2: [[Alternating Maces 🔄✊]]
-3. gr24: The Back Breaker
+3. gr24: [[The Back Breaker 🪵💥]]
 4. 3br21
 5. 2br10
 6. o10: [[Buckling Branch ⤴️🌳]]

@@ -20,6 +20,6 @@
     - [[Right ➡️]] [[Downward ⬇️]] [[Hammerfist 🔨✊💥]] [[To 🎯]] their neck
 5. - [[Left ⬅️]] [[Foot 🦶]] [[Backward 🔽|Back 🔽]] towards [[600 ⬇️]]
     - Turn [[To 🎯|🎯]] their head towards us
-6. - [[Downward ⬇️]] [[Hammerfist 🔨✊💥]] [[To 🎯]] their head
+6. - [[Downward ⬇️]] [[Back Knuckle 🔙✊💥]] [[To 🎯]] their head
 7. - [[Upward ⬆️]] [[Heel Palm ✋🌴💥]] [[To 🎯]] their face
 8. - [[Cover Right before Left 🦶🔄]] towards [[730 ↙️]]
