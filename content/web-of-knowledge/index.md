@@ -61,7 +61,7 @@ title: Web of Knowledge
 		- [[Parting Wings 🥳🪽]] ([[9]])
 		- [[Hooking Wings 🪝🪽]] ([[15]])
 	- [[3-punches|Punches 👊]]
-		- [[Leaping Crane ↖️🐦]] ([[3]])
+		- [[Leaping Crane 🦘🐦]] ([[3]])
 		- [[Thundering Hammers 🌩️🔨]] ([[10]])
 		- [[Shield and Sword 🛡️⚔️]] ([[16]])
 		- [[Sleeper 💤]] ([[21]])
@@ -122,6 +122,7 @@ title: Web of Knowledge
 		- [[Intercepting the Ram ✋🐏]] ([[20]])
 	- [[2-pushes|Pushes ✋]]
 		- [[Encounter with Danger ⚠️🦵🦵🦵]] ([[2]])
+		- [[Leap from Danger 🦘⚠️]] ([[9]])
     - [[3-punches|Punches 👊]]
 	    - [[Circling Destruction ⭕💥]] ([[3]])
 		- [[Circles of Protection ⭕🛡️]] ([[10]])
@@ -137,6 +138,7 @@ title: Web of Knowledge
 	- [[6-locks-and-chokes|Locks & Chokes 🔒]]
 		- [[Escape from Death 🏃💀]] ([[6]])
 		- [[Heavenly Ascent 🪽⬆️]] ([[13]])
+		- [[Cross of Death ❌💀]] ([[18]])
 	- [[7-weapons|Weapons 🗡️]]
 		- [[Brushing the Storm 🖌️⛈️]] ([[7]])
 		- [[Securing the Storm 🛡️⛈️]] ([[19]])

@@ -34,7 +34,7 @@ cf. [Fresno Kenpo Karate](https://fresnokenpokarate.com/training-video/)
 29. l20: [[Gripping Talon 🧤🦅]] (eigentlich bl20)
 30. l15: [[Hooking Wings 🪝🪽]]
 31. bl4: [[Hugging Pendulum 🤗🕰️]]
-32. l3: [[Leaping Crane ↖️🐦]]
+32. l3: [[Leaping Crane 🦘🐦]]
 33. o17: [[Locked Wing 🔒🪽]]
 34. o7: [[Lone Kimono 1️⃣👘]]
 35. g8: [[Mace of Aggression ✊↔️]]
