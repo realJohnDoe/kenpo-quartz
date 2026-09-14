@@ -5,8 +5,7 @@ title: Short Form 3
 ---
 ## Video 🎥
 
-<iframe src="https://www.youtube.com/embed/XWAtsuDdgQE" width="100%" height="400"></iframe>
-
+<iframe src="https://www.youtube.com/embed/dQWDju74kXs?start=102" width="100%" height="400"></iframe>
 ## Steps  👣
 
 1. [[4-salutation|Salutation]]
@@ -31,3 +30,7 @@ title: Short Form 3
 5. Towards [[130 ↗️]]:
 	1. [[Conquering Shield 🏆🛡️]]
 	2. [[Striking Serpent's Head 🎳🐍]]
+
+## Alternative Video 🎥
+
+<iframe src="https://www.youtube.com/embed/XWAtsuDdgQE" width="100%" height="400"></iframe>

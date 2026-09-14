@@ -10,7 +10,7 @@
 
 1. - Step [[Backward 🔽|Back 🔽]] with [[Left ⬅️]] [[Foot 🦶]] into [[Right ➡️]] [[Neutral Bow 0️⃣🧍‍♂️]] facing [[1200 ⬆️]] 
     - [[Right ➡️]] [[Extended 📏]] [[Outward 🔼]] [[Block 🛡️]]
-2. - [[Right ➡️]] [[Inward 🔽]] [[Downward ⬇️]] [[Back Knuckle 🔙✊💥]]
+2. - [[Right ➡️]] [[Inward 🔽]] [[Downward ⬇️]] [[Hammerfist 🔨✊💥]]
 3. - Shuffle forward
     - [[Right ➡️]] [[Outward 🔼]] thrusting [[Elbow 💪💥]] strike
 4. - [[Cover Right before Left 🦶🔄]] facing [[730 ↙️]]
